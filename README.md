@@ -10,8 +10,8 @@ job to go to, a home to live in and a pension to look forward to. And,
 boy, does the rest of the world hate that...
 
 You may want to tune into the [Breakfast
-Show](https://www.twitch.tv/aldursys) to help you get used to how life
-works here.
+Show](https://www.twitch.tv/newwayland) to help you get used to how life
+works here. Or [join the Discord Server](https://discord.com/invite/ESGqEsv) to add your thoughts and ideas at any time.
 
 # Your mission
 
